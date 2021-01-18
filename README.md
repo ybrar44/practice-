@@ -1,3 +1,5 @@
 # practice-
-practice
-its a smalll practice for test 
+myname is yadvinder 
+btm student 
+rrc
+
